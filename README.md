@@ -1,2 +1,4 @@
-# guinness-someversion-src-old
-no clue but who cares
+# bah have full src (old version idgaf)
+
+it's outdated and obsolete!
+nothing about it is worth using!
