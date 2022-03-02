@@ -9,7 +9,4 @@
 
 
 
-
-
-
-rippin and tearin rn
+i think someone leaked it idk who tho have fun :trollface:
