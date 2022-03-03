@@ -10,3 +10,5 @@ i wrote some utterly horrible code so read at your own risk
 
 
 i think someone leaked it idk who tho have fun :trollface:
+
+also it's 1.12.2 get fucked
